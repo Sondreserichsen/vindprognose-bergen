@@ -1,0 +1,1 @@
+#Vindprognose for Bergen
